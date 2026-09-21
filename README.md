@@ -1,0 +1,1 @@
+# Farid-Gravity-Law-From-Intranuclear-Structural-Architecture-to-Universal-Gravitation
